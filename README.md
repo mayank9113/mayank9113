@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mayank9113
-- 🌱 I’m currently studying in MNNIT ALLAHABAD
+- 🌱 I’m currently studying in NIT ALLAHABAD
 - 👀 I’m interested in learning and exploring amazing things
 
 <!---
